@@ -1,1 +1,1 @@
-Translate the english contest of the wiki into Chinese
+Translate the English contest of the wiki into Chinese
